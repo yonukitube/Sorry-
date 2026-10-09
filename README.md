@@ -6,10 +6,10 @@ My old GitHub account, "yonukwasim520-cyber", lost all its contents, so I decide
 
 Just to clear things up:
 
-- ❌ I wasn't hacked.
-- ❌ My projects didn't disappear into
+- ❌ Hacking my account is prohibited; I need to know why
+- ❌ gay is banned from even accessing my account.
 - ❌ Don't start World War 10 because of an old account
-- another dimension. 😅
+- another dimension 😅
 - ✅ I simply moved my repositories to a new account.
 
 I created this repository to explain the situation and avoid any confusion.
